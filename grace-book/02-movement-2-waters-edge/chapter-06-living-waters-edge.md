@@ -141,6 +141,18 @@ That's not past tense only. That's present reality.
 
 **5. The Vulnerability of Letting Yourself Be Washed**
 
+Coming home after being away can trigger anxiety. You walk through familiar spaces and feel the weight of memories—the discord that occurred, the conflicts that left scars.
+
+But then you recognize: these events are historical. They're not happening now. They exist in the past, not in the present moment. And you don't have to respond to historical events as if they're current.
+
+This is what it means to approach the water's edge: recognizing that the past is past, but the water is present. Grace is now. Healing is available in this moment.
+
+At the water's edge, I was trying hard to practice vulnerability and connection. I was meeting with friends, making progress on projects, engaging in introspection and prayer. Outwardly, momentum was building.
+
+But I was also exhausted. Disconnected at times. Empty.
+
+The water's edge isn't instant healing. It's the beginning of healing. You can be making real progress and still feel the weight of the journey. That's not failure—that's honesty.
+
 This is the tender, terrifying heart of the chapter.
 
 To be washed, you have to be touched. You have to let someone see the dirt. You have to stop hiding.
