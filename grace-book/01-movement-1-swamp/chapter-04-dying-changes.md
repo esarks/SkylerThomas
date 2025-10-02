@@ -3,6 +3,14 @@
 
 **Opening Scene (2-3 pages):**
 
+Someone once said: "Almost dying changes nothing. Dying changes everything."
+
+It's true. You can come close to the edge, peek over, and walk back unchanged. You can almost hit bottom and still cling to the old life. Almost-dying gives you a scare, maybe even a wake-up call. But it doesn't transform you.
+
+Dying does.
+
+And I'm not talking about biological death (though we'll get there). I'm talking about the spiritual deaths we all must undergo if we're going to truly live.
+
 There's a moment in every spiritual journey when you realize: something has to die.
 
 Maybe it's a relationship that's turned toxic. Maybe it's a dream that's become an idol. Maybe it's the version of yourself you've been clinging to—the capable one, the strong one, the one who has it all together.

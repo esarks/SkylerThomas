@@ -59,6 +59,17 @@ And I heard—not audibly, but clearly—'Then don't. Choose.'
 
 **The Two Paths (3-4 pages):**
 
+This road stops here.
+
+I remember it as if it were yesterday. No—as if it were today, happening right at this very moment. I never want to forget this moment. The moment my eyes were opened and I saw it. The moment my ears were pierced and I heard it. The moment I turned my face to the sun and felt it—the gentle breeze of God's Spirit.
+
+The road ends here.
+My choice is simple:
+Turn around and go back to the swamp,
+Or continue and take the path that leads to the water.
+
+But you can't stay here. You have to choose.
+
 This section lays out the choice with brutal honesty. No sugarcoating. No false promises. Just truth.
 
 **Path 1: Staying in the Swamp**
@@ -239,6 +250,16 @@ Help the reader process their own decision:
 - Not readiness (you'll never feel ready)
 - Not certainty (you can't have all the answers first)
 - **Willingness** (just say yes)
+
+I remember the first time I successfully navigated a trigger. I was walking through a space where music was playing—music that brought back memories of times when I'd used drinking to relax and enjoy the ambiance.
+
+And I asked myself: "Would it be so bad? No one would know."
+
+But then I reasoned: "But I would know. And I couldn't honestly say I'd succeeded if I gave in now."
+
+In that moment, the desire disappeared. I made a different choice—got coffee instead, enjoyed the evening fully present and clear-headed. And I fell asleep with tremendous peace.
+
+That's what decision looks like in real time. Not perfection, but choosing the path toward life instead of the path back to the swamp.
 
 **Biblical Parallels (2 pages):**
 

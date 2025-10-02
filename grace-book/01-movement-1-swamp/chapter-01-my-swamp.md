@@ -19,6 +19,14 @@ Not a moment of crisis necessarily—crisis would almost be easier. This is the 
 
 **The Geography of the Swamp (2 pages):**
 
+The swamp is a place of disconnection. From God, from others, from ourselves. In the swamp, we ask painful questions:
+
+Do I feel connected? Do I even want connection anymore?
+When do I feel most loved? When do I feel most unlovable?
+When do the pieces of my life come together in congruence, rather than feeling like scattered fragments that don't fit?
+
+As far as I can tell, connection IS life. Without it, we die—if not physically, at least within. And yet, in the swamp, connection feels utterly elusive.
+
 Let's be honest about what the swamp actually is. Use all the senses:
 
 - **Sight:** Dark water, murky and opaque. You can't see your feet. Can't see what's underneath. Can't see the way out. The light filtering through the canopy is weak, greenish, sickly.
@@ -81,6 +89,10 @@ Explore the paradox: You're crying out to a God you're not sure is listening. Yo
 This is faith reduced to its essence: "I can't. Help."
 
 And here's the mystery: God meets us here. Not in our eloquent prayers, but in our desperate ones. Not when we have all the answers, but when we're out of answers entirely.
+
+Theodore Roosevelt captured something essential when he wrote about "the man in the arena"—the one whose face is marred by dust and sweat and blood, who strives valiantly, who fails while daring greatly. That's the swamp dweller who looks up. Not the critic standing outside, but the fighter in the middle of it.
+
+The swamp is your arena. Being honest about it—that's daring greatly.
 
 **Biblical Parallels (2-3 pages):**
 

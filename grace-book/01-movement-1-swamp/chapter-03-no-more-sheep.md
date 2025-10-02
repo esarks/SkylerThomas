@@ -40,6 +40,12 @@ Explore the mechanics of conformity:
 
 **2. Following the Herd vs. Following the Shepherd**
 
+Researcher Brené Brown talks about vulnerability and wholehearted living. Her work resonated with me deeply because she names something essential: you can read all the research, study all the stories of others who've "been there," but until you reckon with your own story, transformation doesn't happen.
+
+You can't rely on someone else's journey to change yours. You can't watch from outside the arena and expect to grow. At some point, you have to step into your own arena, face your own dragons, tell your own truth.
+
+That's what leaving the herd means—not rejecting community, but claiming your own story. Not rebelling, but responding to the voice calling your name.
+
 This is where the chapter gets theologically rich. Because Jesus actually talks about this explicitly in John 10:
 
 "My sheep listen to my voice; I know them, and they follow me" (John 10:27).
@@ -91,6 +97,12 @@ Afterwards, someone came up and said, 'God really used you tonight.' And I wante
 That night in my hotel room, I had it out with God. 'I can't do this anymore. I don't know the difference between real and fake. I don't know if I'm following You or just playing the part everyone expects.'"
 
 **4. The Cost of Being Yourself**
+
+I remember visiting a friend during a crisis season. I'd only planned to stay five minutes. It turned into an hour and a half—nothing less than a "God visit."
+
+That's what happens when you have the kind of friendship where masks come off immediately. Where even if you haven't talked in months, within a minute you're deep in conversation. Where you can share the things you've only told your counselor.
+
+That visit became instrumental in bringing me to a watershed moment. Sometimes leaving the herd means finding the one or two people who know you—really know you—and letting that be enough. Not the approval of the crowd, but the authenticity of true connection.
 
 Here's the hard truth: breaking away from the herd has a cost.
 

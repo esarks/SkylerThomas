@@ -36,6 +36,18 @@ Or the opposite: the hustle for more. More followers, more opportunities, more r
 
 **2. Why "More" Never Satisfies**
 
+Think about a simple toilet. It works because of proper flow—enough water moving through the right channels creates the siphon effect. But over time, mineral deposits build up in those channels. The water flow decreases. Eventually, nothing flushes properly.
+
+Here's the thing: when it stops working, most people think the problem is in the drain. So they snake it. Doesn't fix it. Wrong diagnosis.
+
+The problem isn't downstream. It's in the channels themselves—clogged with accumulation.
+
+Our spiritual lives work the same way. When things stop flowing, when we're not experiencing life and joy and connection, we often misdiagnose. We think we need MORE—more activities, more experiences, more stuff. We're trying to snake the drain.
+
+But the real problem is the channels are clogged. We've accumulated so much—so many expectations, so many commitments, so much noise—that grace can't flow properly anymore.
+
+The answer isn't more. The answer is clearing the channels.
+
 This is Ecclesiastes territory. "Whoever loves money never has enough; whoever loves wealth is never satisfied with their income" (Ecclesiastes 5:10).
 
 Unpack the psychology and theology:
@@ -65,7 +77,15 @@ Create a chart or comparison:
 | Produces joy | Produces stress |
 | Enough is enough | Enough is never enough |
 
-**4. Learning the Difference Between Gift and Possession**
+**4. The Exhaustion of Trying to Manage It All**
+
+Many of us have tried to numb one part of our lives while keeping the rest functional. We think we can compartmentalize—manage the pain in one area while maintaining performance in others. But it doesn't work that way. What we do in one area affects all areas. The people around us feel it, even when we think we're hiding it well.
+
+This is the exhaustion of "too much"—too much grasping, too much managing, too much performing. We're trying to walk a tightrope, maintaining balance through sheer willpower.
+
+But grace doesn't ask us to walk a tightrope. Grace invites us to let go.
+
+**5. Learning the Difference Between Gift and Possession**
 
 Tell the story of how you learned this (or are learning it):
 

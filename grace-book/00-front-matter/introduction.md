@@ -18,6 +18,26 @@ This introduction establishes both the crisis and the promise. The crisis: perfo
 **Key Sections:**
 
 1. **My Story of Burnout (3-4 pages):**
+
+   I remember a season when everything looked right from the outside. We were deeply involved in our church community, leading groups, teaching classes. People looked to us as examples of faithful service. But underneath all the activity, relationships were fracturing in ways I couldn't control or understand.
+
+   At work, there was conflict I couldn't navigate—conversations that somehow always went sideways, no matter how carefully I tried. My boss pulled me aside one day with words that landed like a punch: the dynamic wasn't working, and I was part of the problem. At home, the tension was even worse—the kind you can feel in the air before anyone says a word.
+
+   I was trying so hard to prepare meaningful lessons and lead well in ministry. Pouring hours into teaching, into creating content, into showing up for people. But internally, I was drowning. Wondering if I could make any of it work. Wondering if anyone noticed that I was falling apart.
+
+   Then the facade crumbled. What I'd been hiding—what I'd managed to keep in the shadows while maintaining the appearance of having it all together—could no longer stay hidden. And the institution I'd trusted, the community I'd served so faithfully, didn't know how to handle brokenness. There were no resources for restoration, only consequences. Instead of healing, I heard condemnation. Instead of grace, I felt rejection.
+
+   It felt like friendly fire—wounded by the very people who were supposed to help carry burdens.
+
+   So I walked away. Into the swamp of shame, isolation, and despair. Into a place where the questions were bigger than the answers and the pain was more real than the platitudes.
+
+   Maybe you can't relate to my specific story. The details might be different. But perhaps you know someone who's walked a similar path—or maybe you've walked a different path with the same ending: wounded to the point of wanting out. Standing in the wreckage of a broken world where the pieces seemingly can't be put back together.
+
+   That's where this journey begins. Not in victory, but in the swamp. Not in having it all figured out, but in finally admitting we don't.
+
+   ***
+
+   [Continue with the original outline content below:]
    - The years of "successful" ministry/music/faith
    - The growing exhaustion beneath the performance
    - The specific moment when the façade cracked
