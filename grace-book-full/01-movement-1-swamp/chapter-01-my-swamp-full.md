@@ -95,8 +95,6 @@ You're not imagining the abyss. It's real. Nouwen says: yes, look at it. The psa
 
 The swamp demands honesty because you're too tired to lie anymore.
 
-## Insert story here...
-
 ### The Impostor Dies in the Swamp
 
 Brennan Manning gave a name to what was happening:
