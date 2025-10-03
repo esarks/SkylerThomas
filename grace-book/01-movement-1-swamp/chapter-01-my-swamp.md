@@ -60,7 +60,7 @@ The swamp demands honesty because you're too tired to lie anymore. Tell the trut
   - "If I just fake it till I make it..."
 - The exhaustion that comes from performance-based faith
 
-Include a personal story: Maybe the time you led a powerful worship service and people came up afterwards with tears in their eyes, saying "I really felt God tonight," and you felt... nothing. Absolutely nothing. And then you went home and sat in the shower fully clothed because you were too numb to take your clothes off first.
+Include a personal story:
 
 Or the prayer meeting where you offered the most eloquent prayer while your heart was screaming, "I don't know if anyone's listening."
 
