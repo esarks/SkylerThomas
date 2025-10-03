@@ -21,7 +21,7 @@ Now.
 
 **The Crisis Point (2-3 pages):**
 
-You've read four chapters now. You've sat in the swamp (Chapter 1). You've examined your grasping at abundance (Chapter 2). You've wrestled with following the herd or following the Shepherd (Chapter 3). You've stared at death and what needs to die in you (Chapter 4).
+You've read two chapters now. You've sat in the swamp (Chapter 1). You've turned to the deep resource of prayer (Chapter 2).
 
 Now what?
 
